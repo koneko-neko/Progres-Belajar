@@ -1,2 +1,1 @@
-# Rencana Saya Kedepan hanya perumpamaan
-
+# Latihan Github
