@@ -1,1 +1,2 @@
-# Rencana Saya Kedepan 
+# Rencana Saya Kedepan hanya perumpamaan
+
